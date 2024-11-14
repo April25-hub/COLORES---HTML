@@ -30,3 +30,7 @@ Arzaba Diaz April 1173 3W
 ![image](https://github.com/user-attachments/assets/6a216476-eea6-4937-a265-40014aa6aad4)
 ![image](https://github.com/user-attachments/assets/bb93e207-9df0-4c15-8f60-e961dee04edc)
 # colores html 11
+![image](https://github.com/user-attachments/assets/3541a9b6-be52-46b2-8eff-f27799379013)
+![image](https://github.com/user-attachments/assets/d2cc3056-a64a-4bb7-86cd-22d163ebde88)
+# colores 12
+
